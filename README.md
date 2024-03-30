@@ -85,7 +85,7 @@ You must be able to deny such a rumor right away."
 
 Fake news would never spread if everyone could deny a nonsense rumor.
 But, in order to deny it confidently, one has to have his or her own thoughts.
-Actually this is not so easy to as it seems.
+Actually this is not so easy as it seems.
 Particularly it is getting more difficult in recent years,
 because of such a trend as to slight processes and discussions.
 
